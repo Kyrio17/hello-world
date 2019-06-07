@@ -1,2 +1,1 @@
-# hello-world
-This is a description.
+CO2 is capitalism.
